@@ -1,4 +1,4 @@
 # villanos
 
-* doctor domm 
-* red skull
+* doctor domm
+* dr herrera
